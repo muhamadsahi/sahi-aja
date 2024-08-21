@@ -1,2 +1,2 @@
-# sahi-aja
-harus semangat
+# muhamad sahi
+harus semangat untuk meraih kesuksesan
